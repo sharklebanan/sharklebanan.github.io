@@ -1,2 +1,0 @@
-# sharklebanan.github.io
-pizzas
